@@ -1,0 +1,2 @@
+# happy-periods
+Happy Periods is an initiative to create Period Ready Schools and villages in IndiaMoving forward towards creation of period ready schools and villages, pink dustbin for disposal of sanitary waste are also to be set up in schools and communities and a booklet of five activites which has to be done by the girls themselves after talking to their mothers and peers to ensure that they are period ready.
